@@ -1,4 +1,4 @@
-# Hello👋 and welcome to my github profile !
+# Hello👋 and welcome to my Github profile !
 
 ### Smoooool cool image with be added soon  here 😄
 
